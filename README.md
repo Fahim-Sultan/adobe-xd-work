@@ -1,5 +1,5 @@
 
-Hello there! I'm Md.fahim Sultan, a versatile UI/UX designer passionate about creating intuitive, visually appealing, and user-centric interfaces. I specialize in crafting seamless experiences across various platforms, and I'm excited about the possibility of collaborating with you!
+Hello there! I'm Md.Fahim Sultan, a versatile UI/UX designer passionate about creating intuitive, visually appealing, and user-centric interfaces. I specialize in crafting seamless experiences across various platforms, and I'm excited about the possibility of collaborating with you!
 
 Services Offered:
 UI Design: From wireframes to high-fidelity mockups, I focus on creating sleek and engaging user interfaces tailored to your brand and audience.
